@@ -1,6 +1,6 @@
 
 
-¿Hablas español? Consulta la guía en español (y mucho más completa) dando clic [aquí.](https://inbest-my.sharepoint.com/:w:/g/personal/luis_cosio_inbest_me/Ef3qVFgV7wtBioyQH6Cv7j4B-mK-1vNQC0eMNzRuoOZbMg)
+¿Hablas español? Consulta la guía en español (y mucho más completa) dando clic [aquí.](https://www.dropbox.com/s/m20dm2s1oamaizr/Manual%20para%20reto%20de%20Talent%20Land.pdf?dl=0)
 
 
 # Create your own cryptocurrency 101
